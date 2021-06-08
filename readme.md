@@ -4,5 +4,6 @@ Over the Summer of 2019 we were asked to think up a Fluxus inspired event for an
 
 Some links:
 
+* https://enricguaus.wordpress.com/portfolio/this-is-it/
 * https://enricguaus.bandcamp.com/album/this-is-it
 * https://vimeo.com/367860288
